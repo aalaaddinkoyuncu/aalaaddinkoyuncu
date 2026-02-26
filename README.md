@@ -89,7 +89,7 @@
 
 ## 📫 Connect With Me
 
-- 🌐 Portfolio: https://5waysoft.com  
+- 🌐 Portfolio: https://alaaddinkoyuncu.com.tr  
 - 💼 LinkedIn: (ekle)  
 - 📧 Email: (ekle)  
 
